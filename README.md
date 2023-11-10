@@ -1,8 +1,8 @@
 ### Hey! I'm Helena. 👋
 
-<img align="left" alt="Me & Justin" src="https://pbs.twimg.com/media/FOMdG1JVQAMxcV1?format=jpg&name=large"/> |  <img align="left" alt="Me & Justin"  src="https://pbs.twimg.com/media/FNR786vVkAER7_u?format=jpg&name=large"/> |  <img align="left" alt="Me & Justin" src="https://pbs.twimg.com/media/FOMdG1pVsAELThi?format=jpg&name=large"/>
-|:-------------------------:|:-------------------------:|:-------------------------:|
+<img align="left" alt="Cats in Cairo" src="https://pbs.twimg.com/profile_banners/1506857446664388608/1682566222/1080x360"/> | 
+|:-------------------------:|
 
 ### Things I Like. 🚀
-- Justin
-- Instagram @helenazwow
+- Pickleball
+- Cycling
